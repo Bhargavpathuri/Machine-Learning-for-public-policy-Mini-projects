@@ -74,7 +74,8 @@ Each mini project notebook provides:
 
 ## 📩 Questions?
 
-For inquiries or support, feel free to reach out to me 
+For inquiries or support, feel free to reach out to me. 
+LinkedIn Profile Link :- www.linkedin.com/in/bhargav-pathuri-2486b61a7 Email: bpathuri@udel.edu
 
 
 
